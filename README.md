@@ -1,5 +1,5 @@
 # fts_registradora
-🇯🇵#7108
+🇯🇵#7108<br>
 Espero que gostem :)
 
 http://discord.gg/fantasycity
